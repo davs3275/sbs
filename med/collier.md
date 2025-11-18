@@ -349,7 +349,7 @@ the Granua.
 ---
 Book 2: 
 
-2.1 Remember to put yourself in mind
+2.1 Remember to put yourself in mind 
 every morning, that before night it
 will be your luck to meet with some
 busy-body, with some ungrateful,
