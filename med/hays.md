@@ -18,7 +18,7 @@ Integrity and manliness.
 ---
 1.3 My mother 
 
-Her reverence for the divine, her generosity, her inability not only to do wrong but even to conceive of doing it. And the simple way she lived—not in the least like the rich.
+Her reverence for the divine, her generosity, her inability not only to do wrong but even to conceive of doing it. And the simple way she lived—not in the least like the rich. 
 
 ---
 1.4 My great-grandfather 
