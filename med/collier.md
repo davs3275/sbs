@@ -644,6 +644,330 @@ consequence ? All this is but Nature's method ; now,
 Nature never does any mischief.
 Written at Carnuntum.
 
+---
+Book 3:
+
+3.1 We ought not only to remember that life
+is wearing off, and a smaller part of it
+is left daily, but also to consider that if
+a man'slife should happen to be longer
+than ordinary, yet it is uncertain
+whether his mind will keep pace with his years, and
+afford him sense enough for business, and power to
+contemplate things human and divine. For if the man
+begins to dote, it is true the mere animal life goes on
+he may breathe, and be nourished, and be furnished
+with imagination and appetite; but to make any proper
+use of himself, to fill up the measure of his duty, to
+distinguish appearances, and to know whether it is
+time for him to walk out of the world or not—as to
+all such noble functions of reason and judgment, the
+man is perfectly dead already. It concerns us, there-
+fore, to push forward, and make the most of our
+matters, for death is continually advancing; and
+besides that, our understanding sometimes dies before
+us.
+
+---
+3.2 It is worth while to observe that the least
+thing that happens naturally to things natural has
+something in itself that is pleasing and delightful
+Thus, for example, there are cracks and little breaks
+on the surface of a loaf, which, though never intended
+by the baker, have a sort of agreeableness in them,
+which invites the appetite. Thus figs, when they are
+most ripe, open and gape; and olives, when they fall
+of themselves and are near decaying, are particularly
+pretty to look at. The bending of an ear of corn, the
+browofalion, the foamof a boar, and manyother things,
+if you take them singly, are far enough from being
+beautiful ; but when they are looked on as effects of
+the products of Nature, help to adorn and attract.
+Thus, if a man has but inclination and thought enough
+to examine the product of the universe, he will find
+the most unpromising appearances in the results of
+Nature not without charm, and that the more remote
+appendages have somewhat to recommend them. One
+thus prepared will be no less pleased to see the gaping
+jaws of living beasts than the imitations of painters
+and sculptors, and with chastened eyes he will find
+beauty in the ripeness of age as well as in the blossom
+of youth. I grant many of these things will not
+charm everyone, but only those who are truly in
+harmony with Nature and her works.
+
+---
+3.3 Hippocrates, who cured so manydiseases, himself
+fell ill and died. The Chaldeans, who foretold other
+people's death, at last met with their own fate.
+Alexander, Pompey, and Julius Csesar, who had
+destroyed so many towns, and cut off so many
+thousands of horse and foot in the field, were forced
+at last to march off themselves. Heraclitus, who
+argued so much about the universal conflagration, died
+through water by a dropsy. Democritus was eaten
+up with vermin ; another sort of vermin destroyed
+Socrates. What are these instances for ? Look you:
+you have embarked, you have made your voyage and
+your port; debark then without more ado. If you
+happen to land upon another world, there will be
+gods enough to take care of you; but if it be your
+fortune to drop into nothing, why, then you will be no
+more solicited with pleasure and pain. Then you will
+have done drudging for your outer covering, which is
+the more unworthy in proportion as that which serves
+it is worthy; for the one is all soul, intelligence, and
+divinity, whereas the other is but dirt and corruption.
+
+---
+3.4 For the future, do not spend your thoughts
+upon other people, unless you are led to it by common
+interest. For the prying into foreign business—that
+is, musing upon the talk, fancies, and contrivances of
+another, and guessing at the what and why of his
+actions—does but make a man forget himself, and
+ramble from his own guiding principle. He ought,
+therefore, not to work his mind to no purpose, nor
+throw a superfluous link into the chain of thought;
+and more especially, to avoid curiosit}^ and malice in
+his inquiry. Accustom yourself, therefore, to think
+upon nothing but what you could freely reveal, if the
+question were put to you; so that if your soul were
+thus laid open, there would nothing appear but what
+was sincere, good-natured, and public-spirited—not
+so much as one voluptuous or luxurious fancy, nothing
+of hatred, envy, or unreasonable suspicion, nor aught
+else which you could not bring to the light without
+;
+blushing. A man thus qualified, who does not delay-
+to assume the first rank among mortals, is a sort of
+priest and minister of the gods, and makes a right use
+of the Deity within him. By the assistance thereof,
+he is preserved, uninfected with pleasure, invulnerable
+against pain—out of the reach of injury, and above
+the malice of evil people. Thus he wrestles in the
+noblest fight, to hold his own against all his passions
+and penetrated with the spirit of justice, welcomes with
+his whole heart all that happens and is allotted to
+him. He never minds other people's speech, thoughts,
+or actions, unless public necessity and general good
+require it. No; he keeps himself to his own busi-
+ness, and contemplates that portion of the whole
+allotted him by the fates, and endeavours to do the
+first as it should be, and believes that his lot is good.
+For every man's fate is suitable, since it is suited to
+him. He considers that the rational principle is akin
+in all men, and that general kindness and concern for
+the whole world is no more than a piece of human
+nature—that not every one's good opinion is not worth
+the gaining, but only that of those who seek to live
+in accordance with Nature. As for others, he knows
+their way of living, both at home and abroad, by day
+and by night, and their companions in their evil way
+of life, and he bears it in mind. And, why, indeed,
+should he value the commendation of such people,
+who are not able even to please themselves ?
+
+---
+3.5 Be not unwilling, selfish, unadvised, or pas-
+sionate in anything you do. Do not affect quaint-
+ness and points of wit: neither talk nor meddle more
+MEDITATIONS. 39
+than is necessary. Take care that the divinity within
+you has a creditable charge to preside over; that you
+appear in the character of your sex and age. Act like
+a Roman Emperor that loves his country, and be
+always in a readiness to quit the field at the first
+summons ; and ere you claim your discharge, manage
+your credit so, that you need neither swear yourself
+nor want a voucher. Let your air be cheerful ; depend
+not upon external supports, nor beg your tranquillity
+of another. And, in a word, never throw away your
+legs, to stand upon crutches.
+
+---
+3.6 If, in the whole compass of human life, you find
+anything preferable tojustice and truth ; to temperance
+and fortitude ; to a mind self-satisfied with its ow^n
+rational conduct, and entirely resigned to fate—if, I
+say, you know anything better than this, turn to it
+with your whole soul, and enjoy it, accounting it the
+best. But if there is nothing more valuable than the
+divinity implanted within you, and this is master of
+its appetites, examines all impressions, and has
+detached itself from the senses, as Socrates used to
+say, and shows itself submissive to the government of
+the gods, and helpful and benevolent to mankind—if
+all things are trifles compared with this, give way to
+nothing else. For if you are once inclined to any
+such thing, it will no longer be in your power to give
+your undivided preference to what is your own
+peculiar good, for it is not lawful that anything of
+another kind or nature, as either popular applause, or
+power, or riches, or pleasures, should be sufifered to
+contest with what is rationally and politically good.
+All these things, if but for a while they begin to
+please, presently prevail, and pervert a man's mind.
+Let your choice therefore run all one way, and be bold
+and resolute for that which is best. Now what is
+profitable is best. If that means profitable to man as
+he is a rational being, stand to it ; but if it means
+profitable to him as a mere animal, reject it, and keep
+your judgment without arrogance. Only take care to
+make inquiry secure.
+
+---
+3.7 Think nothing for your interest which makes
+you break your word, quit your modesty, hate, suspect,
+or curse any person, or inclines you to any practice
+which will not bear the light and look the world in
+the face. For he that values his mind and the worship
+of his divinity before all other things, need act no
+tragic part, laments under no misfortune, and wants
+neither solitude nor company; and, which is still more,
+he will neither fly from life nor pursue it, but is
+perfectly indifferent about the length or shortness of
+the time in which his soul shall be encompassed by
+his body. And if he were to expire this moment, he
+is as ready for it as for any other action that may
+be performed with modesty and decency. For all his
+life long, this is his only care—that his mind may
+always be occupied as befits a rational and social
+creature.
+
+---
+3.8 If you examine a man that has been well-
+disciplined and purified by philosophy, you will find
+nothing that is unsound, foul, or false in him. Death
+can never surprise his life as imperfect, so that
+nobody can say he goes off the stage before his part is
+quite played. Besides, there is in him nothing servile
+or affected
+; he neither attaches himself too closely
+to others, nor keeps aloof from them ; he is neither
+responsible to them, nor does he avoid them.
+
+---
+3.9 Hold in honour your opinionative faculty, for this
+alone is able to prevent any opinion from originating
+in your guiding principle that is contrary to Nature
+or the proper constitution of a rational creature. Now,
+a rational constitution eojoins us to do nothing rashly,
+and to be kindly disposed towards men, and to submit
+willingly to the gods.
+
+---
+3.10 As for other speculations, throw them all out
+of your head, excepting those few precepts above
+mentioned—remembering withal, that every man's
+life lies all within the present, which is but a point of
+time ; for the past is spent, and the future is
+uncertain. Life moves in a very narrow compass;
+yes, and men live in a small corner of the world
+too. And the most lasting fame will stretch but
+to a sorry extent ; for, alas! poor transitory mortals
+who hand it down know little even of themselves,
+much less of those who died long before their time.
+
+---
+3.11 To the foregoing hints you may add this which
+follows:
+—make for yourself a particular description
+and definition of every object that presents itself
+to your mind, that you may thoroughly contem-
+plate it in its own nature, bare and naked, wholly
+and separately. And in your own mind call itself
+and the parts of which it is composed, and into
+which it will be resolved, by its own and proper
+name ; for nothing is so likely to raise the mind
+to a pitch of greatness as the power truly and
+methodically to examine and consider all things that
+happen in this life, and so to penetrate into their
+natures as to apprehend at once what sort of purpose
+each thing serves, and what sort of universe makes use
+of it—what value it bears to the whole, and what to
+man, who is a citizen of that great capital, in respect
+of which all other towns are no more than single
+families—what is this object which makes an im-
+pression on me; how long can it last ; what virtue
+does it require of me; is it good-nature, fortitude,
+truth, simplicity, self-sufficiency, or any of the rest ?
+On each occasion a man should be ready to pronounce,
+" This was sent me by heaven, this by destiny, or the
+combinations of fate, or by one of the same clan,
+or family, or company as myself, who knows not
+what is natural for him. But I do know; therefore I
+am just and friendly to him, and treat him according
+to the natural laws of our communion. However, in
+things indifferent I take care to rate them according
+to their respective value."
+
+---
+3.12 If you will be governed by reason, and manage
+what lies before you with industry, vigour, and
+temper; if you will not run out after new distraction,
+but keep your divinity pure, even as though you must
+at once render it up again, your mind staunch and
+well disciplined, as if this trial of behaviour were your
+last ; and, if you will but cleave to this, and be
+true to the best of yourself, fearing and desiring
+nothing, but living up to your nature, standing boldly
+by the truth of your word, and satisfied therewith.
+then you will be a happy man. But the whole world
+cannot hinder you from so doing.
+
+---
+3.13 As surgeons always have their instruments and
+knives ready for sudden occasions, so be you always
+furnished with rules and principles to let you into
+the knowledge of things human and divine, remem-
+bering even in your slightest action the connection
+these two have with each other. For without a
+regard for things divine, you will fail in your
+behaviour towards men ; and again, the reasoning
+holds for the other side of the argument.
+
+---
+3.14 Wander at random no longer. Alas ! you have
+no time left to peruse your diary, to read over the
+Greek and Roman history, or so much as your own
+commonplace book, which you collected to serve you
+when vouwere old. Hasten then towards the ojoal. Do
+not flatter and deceive yourself. Come to your own
+aid while yet you may, if you have a kindness for
+yourself.
+
+---
+3.15 Men do not know in how many senses they
+can take the words to steal, to buy, to soiu, to be quiet,
+to see what should be done; for this is not effected by
+eyes, but by another kind of vision.
+
+---
+3.16 There are three things which belong to a man
+body, soul, and mind. Sensation belongs to the body,
+impulse to the soul, and reason to the mind. To have
+the senses stamped with the impression of an object
+is common to brutes and cattle ; to be hurried and
+convulsed with passion is the quality of beasts of
+prey and men of pleasure—such as Phalaris and Nero
+—of atheists and traitors, too, and of those who do
+not care what they do when no man sees them. Now,
+since these qualities are common, let us find out the
+mark of a man of probity. His distinction, then, lies
+in letting reason guide his practice, in contentment
+with all that is allotted him, keeping pure the divinity
+within him, untroubled by a crowd of appearances,
+preserving it tranquil, and obeying it as a god. He is
+all truth in his words and justice in his actions ; and
+if the whole world should disbelieve his integrity,
+dispute his character, and question his happiness, he
+would neither take it ill in the least, nor turn aside
+from that path that leads to the aim of life, towards
+which he must move pure, calm, well-prepared, and
+with perfect resignation in his fate,
+
+
 
 
 
