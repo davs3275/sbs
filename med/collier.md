@@ -1,7 +1,7 @@
 Title: Meditations  
 Author: Collier  
-Year: 1916  
-Language: English  
+Year: 1887  
+Language: En
 
 Book 1:
 
@@ -345,6 +345,303 @@ compassed without a protection from above and the
 gods presiding over fate.
 This was written in the country of the Quadi, at
 the Granua.
+
+---
+Book 2: 
+
+1. Remember to put yourself in mind
+every morning, that before night it
+will be your luck to meet with some
+busy-body, with some ungrateful,
+abusive fellow, with some knavish,
+envious, or unsociable churl or other. Now all this
+perverseness in them proceeds from their ignorance of
+good and evil ; and since it has fallen to my share to
+understand the natural beauty of a good action, and
+the deformity of an ill one—since I am satisfied the
+person disobliging is of kin to me, and though we are
+not just of the same flesh and blood, yet our minds
+are nearly related, being both extracted from the
+Deity—I am likewise convinced that no man can do
+me a real injury, because no man can force me to
+misbehave myself, nor can I find it in myheart to hate
+or to be angry with one of myownnature and family.
+For we are all made for mutual assistance, as the feet,
+the hands, and the eyelids, as the rows of the upper
+and under teeth, from whence it follows that clashing
+and opposition is perfectly unnatural. Now such an
+unfriendly disposition is implied in resentment and
+aversion.
+
+---
+2. This being of mine, all there is of it, consists of
+flesh, breath, and the ruling part. Away with your
+books then. Suffer not your mind any more to
+be distracted. It is not permitted. As for your
+body, value it no more than if you were just
+expiring. For what is it? Nothing but a little
+blood and bones ; a piece of network, wrought
+out of nerves, veins, and arteries twisted together.
+In the next place, consider what sort of thing
+your breath is ; why, only a little air, and that
+not constant, but every moment let out of your lungs,
+and sucked in again. The third part of your composi-
+tion is the ruling part. Now consider thus : you are
+an old man: do not suffer this noble part of you under
+servitude any longer. Let it not be moved by the
+springs of selfish passions; let it not quarrel with fate,
+be uneasy at the present, or afraid of the future.
+
+---
+3. Providence shines clearly through the works of
+the gods; even the works of chance are^not without
+dependence on Nature, being only an effect of that
+chain of causes which are under a providential regula-
+tion. Indeed, all things flow from this fountain;
+besides, there is necessity, and the interest of the
+whole universe, of which you are a part. Now, that
+which is both the product and support of universal
+Nature, must by consequence be serviceable to every
+part of it ; but the world subsists upon change, and is
+preserved by the mutation of the simple elements, and
+also of things mixed and compounded, and what it
+loses one way it gets another. Let these reflections
+satisfy you, and make them your rule to live by. As
+;
+for books, cast away your thirst after them, that you
+may not die complaining, but go off in good-humour,
+and heartily thank the gods for what you have had.
+
+---
+4. Remember how often you have postponed mind-
+ing your interest, and let slip those opportunities
+the gods have given you. It is now high time to
+consider what sort of world you are part of, and
+from what kind of governor of it you are descended
+;
+that you have a set period assigned you to act in,
+and unless you improve it to brighten and compose
+your thoughts, it will quickly run off with you, and be
+lost beyond recovery.
+
+---
+5. Take care always to remember that you are a
+man and a E-oman ; and let every action be done with
+perfect and unaffected gravity, humanity, freedom,
+and justice. And be sure you entertain no fancies,
+which may give check to these qualities. This is
+possible, if you will but perform every action as
+though it were your last ; if your appetites and
+passions do not cross upon your reason ; if you keep
+clear of rashness, and have nothing of insincerity
+and self-love to infect you, and do not complain of your
+destiny. You see what a few points a man has to
+gain in order to attain to a godlike way of living
+for he that comes thus far, performs all which the
+immortal powers will require of him.
+
+---
+6. Continue to dishonour yourself, mysoul ! Neither
+will you have much time left to do yourself honour.
+For the life of each man is almost up already; and
+yet, instead of paying a due regard to yourself, you
+place your happiness in the souls of other men.
+
+---
+7. Do not let accidents disturb, or outward objects
+engross your thoughts, but keep your mind quiet and
+disengaged, that you may be at leisure to learn some-
+thing good, and cease rambling from one thing to
+another. There is likewise another sort of roving to
+be avoided ;
+for some people are busy and yet do
+nothing ; they fatigue and wear themselves out, and
+yet aim at no goal, nor propose any general end of
+action or design.
+
+---
+8. A man can rarely be unhappy by being ignorant
+of another's thoughts; but he that does not attend to
+the motions of his own is certainly unhappy.
+
+---
+9. These reflections ought always to be at hand:
+To consider well the nature of the universe and my
+own nature, together with the relation betwixt them,
+and what kind of part it is, of what kind of whole
+;
+and that no mortal can hinder me from acting and
+speaking conformably to the being of which I am a part.
+
+---
+10. Theophrastus, in comparing the degrees of faults
+(as men would commonly distinguish them), talks like
+a philosopher when he affirms that those instances of
+misbehaviour which proceed from desire are greater
+than those of which anger is the occasion. Por a
+man that is angry seems to quit his hold of reason
+unwillingly and with pain, and start out of rule before
+he is aware. But he that runs riot out of desire,
+being overcome by pleasure, loses all hold on himself,
+and all manly restraint. Well, then, and like a philo-
+sopher, he said that he of the two is the more to
+be condemned that sins with pleasure than he that
+sins with grief. For the first looks like an injured
+person, and is vexed, and, as it were, forced into a
+passion; whereas the other begins with inclination,
+and commits the fault through desire.
+
+---
+11. Manage all your actions, words, and thoughts
+accordingly, since you may at any moment quit life.
+And what great matter is the business of dying? If
+the gods are in being, you can suffer nothing, for
+they will do you no harm. And if they are not, or take
+no care of us mortals—why, then, a world without
+either gods or Providence is not worth a man's while
+to live in. But, in truth, the being of the gods, and
+their concern in human affairs, is beyond dispute.
+And they have put it entirely in a man's power not to
+fall into any calamity properly so-called. And if
+other misfortunes had been really evils, they would
+have provided against them too, and furnished man
+with capacity to avoid them. But how can that
+which cannot make the man worse make his life so ?
+I can never be persuaded that the universal Nature
+neglected these matters through want of knowledge,
+or, having that, yet lacked the power to prevent or
+correct the error ; or that Nature should commit such
+a fault, through want of power or skill, as to suffer
+things, really good and evil, to happen promiscuously
+to good and bad men. Now, living and dying, honour
+and infamy, pleasure and^ pain, riches and poverty
+all these things are the common allotment of the
+virtuous and vicious, because they have nothing
+intrinsically noble or base in their nature ; and,
+therefore, to speak properly, are neither good nor
+
+
+---
+12. Consider how quickly all things are dissolved
+and resolved ; the bodies and substances themselves
+into the matter and substance of the world, and their
+memories into its general age and time. Consider, too,
+the objects of sense, particularly those which charm
+us with pleasure, frighten us with pain, or are most ad-
+mired for empty reputation. The power of thought will
+show a man how insignificant, despicable, and paltry
+these things are, and how soon they wither and die. It
+will show him what those people are upon whose
+fancy and good word the being of fame depends
+also the nature of death, which, if once abstracted
+from the pomp and terror of the idea, will be found
+nothing more than a pure natural action. Now he
+that dreads the course of nature is a very child
+;
+but this is not only a work of nature, but is also pro-
+fitable to her. Lastly, we should consider how we are
+related to the Deity, and in what part of our being,
+and in what condition of that part.
+
+---
+13. Nothing can be more unhappy than the
+curiosity of that man that ranges everywhere, and
+digs into the earth, as the poet says, for discovery ;
+that is wonderfully busy to force by conjecture a
+passage into other people's thoughts, but does not
+consider that it is sufficient to reverence and serve the
+divinity within himself. And this service consists in
+this, that a man keep himself pure from all violent
+passion, and evil affection, from all rashness and
+vanity, and from all manner of discontent towards
+gods or men. For as for the gods, their administration
+ought to be revered upon the score of excellency ;
+and as for men, their actions should be well taken for
+the sake of common kindred. Besides, they are often
+to be pitied for their ignorance of good and evil;
+which incapacity of discerning between moral qualities
+is no less a defect than that of a blind man, who
+cannot distinguish between white and black.
+15. Though you were to live three thousand, or, if
+you please, thirty thousand of years, yet remember
+that no man can lose any other life than that w^hich
+he now lives, neither is he possessed of any other than
+that which he loses. Whence it follows that the
+longest life, as we commonly speak, and the shortest,
+come all to the same reckoning. For the present is
+of the same duration everywhere. Everybody's loss,
+therefore, is of the same bigness, and reaches no
+further than to a point of time, for no man is capable
+of losing either the past or the future ; for how can
+one be deprived of what he has not ? So that under
+this consideration there are two notions worth re-
+memJbering. One is, that Nature treads in a circle, and
+has much the same face through the whole course
+of eternity. And therefore it signifies not at all
+whether a man stands gazing here an hundred, or two
+hundred, or an infinity of years; for all that he gets
+by it is only to see the same sights so much the
+cftener. The other hint is, that when the longest
+and shortest-lived persons come to die, their loss is
+equal; they can but lose the present as being the only
+thing they have ; for that which he has not, no man
+can be truly said to lose.
+
+---
+15. Monimus, the Cynic philosopher, used to say
+that all things were but opinion. Now this saying
+may undoubtedly prove serviceable, provided one
+accepts it only as far as it is true.
+
+---
+16. There are several different ways by which a
+man's soul may do violence to itself ; first of all, when
+it becomes an abscess, and, as it were, an excrescence
+on the universe, as far as in it lies. For to be vexed
+at anything that happens is a separation of ourselves
+from nature, in some part of which the natures of all
+other things are contained. Secondly, it falls under
+the same misfortune when it hates any person, or goes
+against him, with an intention of mischief, which is
+the case of the angry and revengeful. Thirdly, it
+wrongs itself when it is overcome by pleasure or pain.
+Fourthly, when it makes use of art, tricking, and
+falsehood, in word or action. Fifthly, when it does
+not know what it would be at in a business, but runs
+on without thought or design, whereas even the least
+undertaking ought to be aimed at some end.
+Now the end of rational beings is to be governed
+by the law and reason of the most venerable city and
+constitution.
+
+---
+17. The extent of human life is but a point; its
+substance is in perpetual flux, its perceptions dim,
+and the whole composition of the body tending to
+corruption. The soul is but a whirl, fortune not to be
+guessed at, and fame undiscerning—in a word, that
+which belongs to the body is a flowing river, and what
+the soul has is but dream and bubble. Life is but a
+campaign, or course of travels, and after-fame is
+oblivion. What is it, then, that will stick by a man?
+Why, nothing but philosophy. Now, this consists
+in keeping the divinity within us from injury and
+disgrace, superior to pleasure and pain, doing nothing
+at random, without any dissembling and pretence, and
+independent of the motions of another. Farther,
+philosophy brings the mind to take things as they
+fall, and acquiesce in their distribution, inasmuch as all
+events proceed from the same cause with itself ; and,
+above all, to have an easy prospect of death, as being
+nothingmore thana dissolving of the elements of which
+each thing is composed. Now, if the elements them-
+selves are never the worse for runnino' off one into
+another, what if they should all change and be dis-
+solved ? Why should any man be concerned at the
+consequence ? All this is but Nature's method ; now,
+Nature never does any mischief.
+Written at Carnuntum.
+
 
 
 
