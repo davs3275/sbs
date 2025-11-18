@@ -739,7 +739,6 @@ Praising its mother, thanking the tree it grew on.
 ---
 4.49 To be like the rock that the waves keep crashing over. It stands unmoved and the raging of the sea falls still around it.
 
----
 4.49a—It’s unfortunate that this has happened.
 
 No. It’s fortunate that this has happened and I’ve remained unharmed by it—not shattered by the present or frightened of the future. It could have happened to anyone. But not everyone could have remained unharmed by it. Why treat the one as a misfortune rather than the other as fortunate? Can you really call something a misfortune that doesn’t violate human nature? Or do you think something that’s not against nature’s will can violate it? But you know what its will is. Does what’s happened keep you from acting with justice, generosity, self-control, sanity, prudence, honesty, humility, straightforwardness, and all the other qualities that allow a person’s nature to fulfill itself?
