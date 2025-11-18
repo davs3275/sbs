@@ -5,17 +5,17 @@ Language: En
 
 Book 1:
 
-1. The example of my grandfather Verus
+1.1 The example of my grandfather Verus
 gave me a good disposition, not prone
 to anger."
 
 ---
-2. By the recollection of my father's
+1.2 By the recollection of my father's
 character, I learned to be both modest
 and manly.
 
 ---
-As for my mother, she taught me to have re-
+1.3 As for my mother, she taught me to have re-
 gard for religion, to be generous and open-handed, and
 not only to forbear from doing anybody an ill turn,
 but not so much as to endure the thought of it. Byher
@@ -24,13 +24,13 @@ living, very different from l;he common luxury of the
 rich.
 
 ---
-I have to thank my great-grandfather that I did
+1.4 I have to thank my great-grandfather that I did
 not go to a public school, but had good masters at
 home, and learnt to know that one ought to spend
 liberally on such things.
 
 ---
-From my governor I learned not to join either
+1.5From my governor I learned not to join either
 the green or the blue faction on the race-ground, nor to
 support the Parmularius or Scutarius at the gladi-
 ators' shows. He taught me also to put my own
@@ -41,7 +41,7 @@ other people's business, nor be easy in giving credit to
 informers.
 
 ---
-From Diognetus, to shun vain pursuits, not to be
+1.6 From Diognetus, to shun vain pursuits, not to be
 led away with the impostures of wizards and sooth-
 sayers, who pretend they can discharge evil spirits,
 and do strange feats by the strength of a charm ; not
@@ -57,7 +57,7 @@ reconciled me to other like rio;ours of the Grecian
 discipline.
 
 ---
-7. It was Rusticus that first made me desire to live
+1.7 It was Rusticus that first made me desire to live
 rightly, and come to a better state ; who prevented
 mefromrunning into the vanity of the sophists, either
 by writing speculative treatises, haranguing upon
@@ -78,7 +78,7 @@ talkers. And, to conclude with him, he gave me his
 own copy of Epictetus's memoirs.
 
 ---
-8. Apollonius taught me to give my mind its due
+1.8 Apollonius taught me to give my mind its due
 freedom, and disengage it from dependence upon
 chance, and not to regard, though ever so little,
 anything uncountenanced by reason. To maintain an
@@ -97,7 +97,7 @@ obligation, without either lessening myself, or seeming
 ungrateful to my friend.
 
 ---
-9. The philosopher Sextus recommended good
+1.9 The philosopher Sextus recommended good
 humour to me, and showed me the pattern of a house-hold governed in a fatherly manner. He also bade
 me make nature and reason my rule to live by. By
 his precedent I was instructed to appear with an
@@ -118,7 +118,7 @@ enough, without noise and display, and likewise possess
 great knowledge without vanity and ostentation.
 
 ---
-10. Alexander the Grammarian taught me not to be
+1.10 Alexander the Grammarian taught me not to be
 ruggedly critical about words, nor find fault with
 people for improprieties of phrase or pronunciation,
 but to set them right by speaking the thing properly
@@ -127,19 +127,19 @@ inquiry, or by some such other indirect and suitable
 correction.
 
 ---
-11. Fronto taught me that envy, tricking, and
+1.11 Fronto taught me that envy, tricking, and
 dissimulation are the character and consequences of
 tyranny; and that those we call patricians have
 commonly not much fatherly feeling in them.
 
 ---
-12. Alexander the Platonist advised me, that with-
+1.12 Alexander the Platonist advised me, that with-
 out necessity I should never say to anyone, nor write in a letter, that I am not at leisure, nor make business
 an excuse to decline frequently the offices of humanity
 to those we dwell with.
 
 ---
-13. I learned of Catulus not to slight a friend for
+1.13 I learned of Catulus not to slight a friend for
 making a remonstrance, though it should happen to
 be unreasonable, but rather to endeavour to restore
 him to his natural humour. That, like Domitius and
@@ -149,7 +149,7 @@ should always preserve an hearty affection for my
 children.
 
 ---
-14. I am indebted to Severus for the love I bear to
+1.14 I am indebted to Severus for the love I bear to
 my relations, and towards justice and trath. He like-
 wise made me acquainted with the character and senti-
 ments of Cato, Brutus, Thrasea, Helvidius, and Dio
@@ -169,7 +169,7 @@ not to put his friends to the trouble of divining what
 he would be at.
 
 ---
-15. I learned from Maximus to command myself,
+1.15 I learned from Maximus to command myself,
 and not to be too much drawn towards anything; to
 be full of spirits under sickness and misfortune ; to
 appear with modesty, obligingness, and dignity of
@@ -190,7 +190,7 @@ themselves his betters. Besides all this, he had an
 agreeable wit.
 
 ---
-16. In my adoptive father I observed a smooth
+1.16 In my adoptive father I observed a smooth
 and inoffensive temper, with great steadiness in keep-
 ing close to measures judiciously taken ; a greatness
 proof against vanity and the impressions of pomp
@@ -280,7 +280,7 @@ soul and an impregnable virtue, such as he showed in
 the sickness of Maximus.
 
 ---
-17. I have to thank the gods that my grandfathers,
+1.17 I have to thank the gods that my grandfathers,
 parents, sister, preceptors, relations, friends, and
 domestics were almost all of them persons of probity,
 and that I never happened to disoblige or misbehave
@@ -349,7 +349,7 @@ the Granua.
 ---
 Book 2: 
 
-1. Remember to put yourself in mind
+2.1 Remember to put yourself in mind
 every morning, that before night it
 will be your luck to meet with some
 busy-body, with some ungrateful,
@@ -374,7 +374,7 @@ unfriendly disposition is implied in resentment and
 aversion.
 
 ---
-2. This being of mine, all there is of it, consists of
+2.2 This being of mine, all there is of it, consists of
 flesh, breath, and the ruling part. Away with your
 books then. Suffer not your mind any more to
 be distracted. It is not permitted. As for your
@@ -393,7 +393,7 @@ springs of selfish passions; let it not quarrel with fate,
 be uneasy at the present, or afraid of the future.
 
 ---
-3. Providence shines clearly through the works of
+2.3 Providence shines clearly through the works of
 the gods; even the works of chance are^not without
 dependence on Nature, being only an effect of that
 chain of causes which are under a providential regula-
@@ -413,7 +413,7 @@ may not die complaining, but go off in good-humour,
 and heartily thank the gods for what you have had.
 
 ---
-4. Remember how often you have postponed mind-
+2.4 Remember how often you have postponed mind-
 ing your interest, and let slip those opportunities
 the gods have given you. It is now high time to
 consider what sort of world you are part of, and
@@ -425,7 +425,7 @@ your thoughts, it will quickly run off with you, and be
 lost beyond recovery.
 
 ---
-5. Take care always to remember that you are a
+2.5 Take care always to remember that you are a
 man and a E-oman ; and let every action be done with
 perfect and unaffected gravity, humanity, freedom,
 and justice. And be sure you entertain no fancies,
@@ -441,14 +441,14 @@ for he that comes thus far, performs all which the
 immortal powers will require of him.
 
 ---
-6. Continue to dishonour yourself, mysoul ! Neither
+2.6 Continue to dishonour yourself, mysoul ! Neither
 will you have much time left to do yourself honour.
 For the life of each man is almost up already; and
 yet, instead of paying a due regard to yourself, you
 place your happiness in the souls of other men.
 
 ---
-7. Do not let accidents disturb, or outward objects
+2.7 Do not let accidents disturb, or outward objects
 engross your thoughts, but keep your mind quiet and
 disengaged, that you may be at leisure to learn some-
 thing good, and cease rambling from one thing to
@@ -460,12 +460,12 @@ yet aim at no goal, nor propose any general end of
 action or design.
 
 ---
-8. A man can rarely be unhappy by being ignorant
+2.8 A man can rarely be unhappy by being ignorant
 of another's thoughts; but he that does not attend to
 the motions of his own is certainly unhappy.
 
 ---
-9. These reflections ought always to be at hand:
+2.9 These reflections ought always to be at hand:
 To consider well the nature of the universe and my
 own nature, together with the relation betwixt them,
 and what kind of part it is, of what kind of whole
@@ -474,7 +474,7 @@ and that no mortal can hinder me from acting and
 speaking conformably to the being of which I am a part.
 
 ---
-10. Theophrastus, in comparing the degrees of faults
+2.10 Theophrastus, in comparing the degrees of faults
 (as men would commonly distinguish them), talks like
 a philosopher when he affirms that those instances of
 misbehaviour which proceed from desire are greater
@@ -492,7 +492,7 @@ passion; whereas the other begins with inclination,
 and commits the fault through desire.
 
 ---
-11. Manage all your actions, words, and thoughts
+2.11 Manage all your actions, words, and thoughts
 accordingly, since you may at any moment quit life.
 And what great matter is the business of dying? If
 the gods are in being, you can suffer nothing, for
@@ -522,7 +522,7 @@ therefore, to speak properly, are neither good nor
 
 
 ---
-12. Consider how quickly all things are dissolved
+2.12 Consider how quickly all things are dissolved
 and resolved ; the bodies and substances themselves
 into the matter and substance of the world, and their
 memories into its general age and time. Consider, too,
@@ -544,7 +544,7 @@ related to the Deity, and in what part of our being,
 and in what condition of that part.
 
 ---
-13. Nothing can be more unhappy than the
+2.13 Nothing can be more unhappy than the
 curiosity of that man that ranges everywhere, and
 digs into the earth, as the poet says, for discovery ;
 that is wonderfully busy to force by conjecture a
@@ -564,7 +564,7 @@ is no less a defect than that of a blind man, who
 cannot distinguish between white and black.
 
 ---
-14. Though you were to live three thousand, or, if
+2.14 Though you were to live three thousand, or, if
 you please, thirty thousand of years, yet remember
 that no man can lose any other life than that w^hich
 he now lives, neither is he possessed of any other than
@@ -590,13 +590,13 @@ thing they have ; for that which he has not, no man
 can be truly said to lose.
 
 ---
-15. Monimus, the Cynic philosopher, used to say
+2.15 Monimus, the Cynic philosopher, used to say
 that all things were but opinion. Now this saying
 may undoubtedly prove serviceable, provided one
 accepts it only as far as it is true.
 
 ---
-16. There are several different ways by which a
+2.16 There are several different ways by which a
 man's soul may do violence to itself ; first of all, when
 it becomes an abscess, and, as it were, an excrescence
 on the universe, as far as in it lies. For to be vexed
@@ -617,7 +617,7 @@ by the law and reason of the most venerable city and
 constitution.
 
 ---
-17. The extent of human life is but a point; its
+2.17 The extent of human life is but a point; its
 substance is in perpetual flux, its perceptions dim,
 and the whole composition of the body tending to
 corruption. The soul is but a whirl, fortune not to be
