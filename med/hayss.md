@@ -5,7 +5,6 @@ Language: English
 
 Book 1:
 
----
 1.1 My grandfather Verus 
 
 Character and self-control.
