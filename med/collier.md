@@ -5,7 +5,7 @@ Language: En
 
 Book 1:
 
-I. The example of my grandfather Verus
+1. The example of my grandfather Verus
 gave me a good disposition, not prone
 to anger."
 
@@ -15,7 +15,7 @@ character, I learned to be both modest
 and manly.
 
 ---
-3, As for my mother, she taught me to have re-
+As for my mother, she taught me to have re-
 gard for religion, to be generous and open-handed, and
 not only to forbear from doing anybody an ill turn,
 but not so much as to endure the thought of it. Byher
@@ -24,13 +24,13 @@ living, very different from l;he common luxury of the
 rich.
 
 ---
-4. I have to thank my great-grandfather that I did
+I have to thank my great-grandfather that I did
 not go to a public school, but had good masters at
 home, and learnt to know that one ought to spend
 liberally on such things.
 
 ---
-5. From my governor I learned not to join either
+From my governor I learned not to join either
 the green or the blue faction on the race-ground, nor to
 support the Parmularius or Scutarius at the gladi-
 ators' shows. He taught me also to put my own
@@ -41,7 +41,7 @@ other people's business, nor be easy in giving credit to
 informers.
 
 ---
-6. From Diognetus, to shun vain pursuits, not to be
+From Diognetus, to shun vain pursuits, not to be
 led away with the impostures of wizards and sooth-
 sayers, who pretend they can discharge evil spirits,
 and do strange feats by the strength of a charm ; not
