@@ -562,7 +562,9 @@ to be pitied for their ignorance of good and evil;
 which incapacity of discerning between moral qualities
 is no less a defect than that of a blind man, who
 cannot distinguish between white and black.
-15. Though you were to live three thousand, or, if
+
+---
+14. Though you were to live three thousand, or, if
 you please, thirty thousand of years, yet remember
 that no man can lose any other life than that w^hich
 he now lives, neither is he possessed of any other than
