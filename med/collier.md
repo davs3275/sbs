@@ -968,6 +968,611 @@ which he must move pure, calm, well-prepared, and
 with perfect resignation in his fate,
 
 
+---
+Book 4:
+
+4.1 When the mind acts up to Nature, she is
+rightly disposed, and takes things as
+they come, and tacks about with her
+circumstances; as for fixing the con-
+dition of her activity, she is not at all solicitous about
+that. It is true, she is not perfectly indifferent ; she
+moves forward with a preference in her choice ; but if
+anything comes cross, she falls to work upon it, and
+like fire converts it into fuel ; for like this element,
+when it is weak, it is easily put out, but when once
+well kindled it seizes upon what is heaped upon it,
+subdues it into its own nature, and increases by
+resistance
+
+---
+4.2 Let every action tend to some point, and be
+perfect in its kind.
+
+---
+4.3 It is the custom of people to go to unfrequented
+places and country places and the sea-shore and the
+mountains for retirement; and this you often earnestly
+desired. But, after all, this is but a vulgar fancy,
+for it is in your power to withdraw into yourself
+whenever you desire. Now one's own mind is a place
+the most free from crowd and noise in the world, if
+a man's thoughts are such as to ensure him perfect
+tranquillity within, and this tranquillity consists in the
+good ordering of the mind. Your way is, therefore,
+to make frequent use of this retirement, and refresh
+your virtue in it. And to this end, be always pro-
+vided with a few short, uncontested notions, to keep
+your understanding true, and send you back content
+with the business to which you return. For instance:
+What is it that troubles you ? It is the wickedness of
+the world. If this be your case, out with your anti-
+dote, and consider that rational beino-s were made for
+mutual aivantage, that^forbearance is one part of
+justice, and that people misbehave themselves against
+their will. Consider, likewise, how many men have
+embroiled themselves, and spent their days in dis-
+putes, suspicion, and animosities
+; and now they are
+dead, and burnt to ashes. Be quiet, then, and disturb
+yourself no more. But, it may be, the distribution of
+the world does not please you. Recall the alternative,
+and argue thus: either Providence or atoms rule the
+universe. Besides, you may recall the proofs that the
+world is, as it were, one great city and corporation.
+But possibly the ill state of your health afflicts you.
+Pray reflect, your intellect is not affected by the
+roughness or smoothness of the currents of sensation,
+if she will retire and take a view of her own privi-
+lege and power. And when she has done this,
+recollect the philosophy about pleasure and pain, to
+which you have even now listened and assented.
+Well ! it may be the concern of fame sits hard upon
+you. If you are pinched here, consider how quickly
+all things vanish, and are forgotten—what an immense
+chaos there stands on either side of eteruity. Ap-
+plause! consider the emptiness of the sound, the
+precarious tenure, the little judgment of those that
+give it us, and the narrow compass it is confined to
+;
+for the whole globe is but a point; and of this little,
+how small is your habitation, and how insignificant
+the number and quality of your admirers. Upon the
+whole, do not forget to retire into the little realm of
+your own. And, above all things, let there be no
+straining nor struggling in the case, but move freely,
+and contemplate matters like a human being, a citizen,
+and a mortal. And among the rest of your stock, let
+these two maxims be always ready: first, that things
+cannot disturb the soul, but remain motionless with-
+out, while disturbance springs from the opinion within
+the soul. The second is, to consider that the scene is
+just shifting and sliding off into nothing; and that
+you yourself have seen abundance of great alterations.
+In a word, the world is all transformation, and life is
+opinion.
+
+---
+4.4 If the faculty of understanding lies in common
+amongst us all, then reason, the cause of it, must be
+common too ; and that other reason too which governs
+practice by commands and prohibitions. From
+whence we may conclude, that mankind are under one
+common law ; and if so, they must be fellow-citizens,
+and belong to some body politic. From whence it
+Avill follow, that the whole world is but one common-
+wealth ; for certainly there is no other society in
+which mankind can be incorporated. Now this
+common fund of understanding, reason, and law is a
+commodity of this same country, or wliicli way do
+mortals light on it ? For as the four distinctions in
+my body belong to some general head and species of
+matter; for instance, the earthy part in me comes
+from the division of earth ; the watery belongs to
+another element ; the airy particles flow from a third
+spring, and those of fire from one distinct from all
+the former (for nothing can no more produce some-
+thing, than something can sink into nothing); thus
+it is evident that our understanding must proceed
+from some source or other.
+
+---
+4.5 Death and generation are both mysteries of
+nature, and somewhat resemble each other ; for the
+first does but dissolve those elements the latter had
+combined. Now there is nothing that a man need be
+ashamed of in all this ; nothing that is opposed to
+his nature as a rational being, and to the design of
+his constitution.
+
+---
+4.6 Practices and dispositions are generally of a
+piece; such usage from such sort of men is in a
+manner necessary. To be surprised at it, is in
+effect to wonder that the fig-tree yields juice. Pray
+consider that both you and your enemy are dropping
+off, and that ere long your very memories will be
+extinguished.
+
+---
+4.7 Do not suppose you are hurt, and your complaint
+ceases. Cease your complaint, and you are not
+hurt.
+
+---
+4.8 That which does not make a man worse, does
+not make his life worse ; and by consequence he has
+no harm either within or without.
+
+---
+4.9 The nature of the geaeral good was obliged to
+act in this manner.
+
+---
+4.10 Take notice that all events turn out justly, and
+that if you observe nicely, you will not only perceive a
+connection between causes and effects, but a sovereign
+distribution of justice, which presides in the adminis-
+tration, and gives everything its due. Observe, then,
+as you have begun, and let all your actions answer
+the character of a good man—I mean a good man in
+the strictness and notion of philosophy.
+
+---
+4.11 If a man affronts you, do not accept his opinion
+or think just as he w^ould have you do. No, look
+upon things as reality presents them.
+
+---
+4.12 Be always provided with principles for these
+two purposes: First, To engage in nothing but what
+reason dictates, what the sovereign and legislative
+part of you shall suggest, for the interest of mankind.
+Secondly, To be disposed to quit your opinion, and
+alter your measures, when a friend shall give you
+good grounds for so doing. But then the reasons of
+changing your mind ought to be drawn from some
+consideration regarding justice and public good, or
+some such generous motive, and not because it pleases
+your fancy, or promotes your reputation.
+
+---
+4.13 Have you any sense in your head? Yes.
+Why do you not make use of it then ? For if this
+faculty does bat do its part, I cannot see what more
+you need wish for.
+
+---
+4.14 At present your nature is distinct ; but ere
+long you will vanish into the whole. Or, rather, you
+will be returned into that universal reason which gave
+you your being.
+
+---
+4.15 When frankincense is thrown upon the altar,
+one grain usually falls before another ; but it makes
+no difference.
+
+---
+4.16 Do but return to the principles of wisdom, and
+those who take you now for a monkey or a wild beast,
+will make a god of you in a week's time.
+
+---
+4.17 Do not act as if you had ten thousand years to
+throw away. Death stands at 3^our elbow. Be good
+for something, while you live and it is in your power.
+
+---
+4.18 What a great deal of time and ease that man
+gains who lets his neighbour's words, thoughts, and
+behaviour alone, confines his inspections to himself,
+and takes care that his own actions are-honest and
+righteous." Truly," as Agathon observes,"
+we should
+not wander thus, but run straight to the goal with-
+out rambling and impertinence."
+
+---
+4.19 He that is so very solicitous about being
+talked of when he is dead, and makes his memory his
+inclination, does not consider that all who knew^ him
+will quickly be gone. That his fame will grow
+less in the next generation, and flag upon the
+course ; and handed from one to another by men
+who eagerly desire it themselves, and are quenched
+themselves, it will be quenched at last ; but granting
+your memory and your men immortal, what is their
+panegyric to you ? I do not sa}^, when you are dead,
+but if you were living, what would commendation
+signify, unless for some reason of utility ? To con-
+clude ; if 3^ou depend thus servilely upon the good
+word of other people, you will be unworthy of your
+nature.
+;
+
+---
+4.20 Whatever is good has that quality from itself;
+it is finished by its own nature, and commendation is
+no part of it. Why, then, a thing is neither better
+nor worse for being praised. This holds concerning
+things which are called good in the common way of
+speaking, as the products of nature and art ; what do
+you think, then, of that which deserves this character
+in the strictest propriety ? It wants nothing foreign
+to complete the idea any more than law, truth, good
+nature, and sobriety. Do any of these virtues stand
+in need of a good word, or are they the worse for a
+bad one? I hope an emerald will shine nevertheless
+for a man's being silent about the worth of it.
+Neither is there any necessity of praising gold, ivory,
+purple, a lyre, a dagger, a little flower, or a shrub.
+
+---
+4.21 If human souls have a being after death, which
+way has the air made room for them from all eternity ?
+Pray, how has the earth been capacious enough to re-
+ceive all the bodies buried in it ? The resolution of
+this latter question will satisfy the former. For as a
+corpse after some continuance by change and dissolu-
+tion makes way for another, so when a man dies,
+and the spirit is let loose into the air, it holds out for
+some time, after which it is changed, diifused, and
+kindled in flame, or else absorbed into the generative
+principle of the universe. And thus they make room
+for succession. And this may serve for an answer
+upon the supposition of the soul's surviving the body.
+Besides, we are not only to consider the vast number
+of bodies disposed of in the manner above mentioned
+but what an infinite number are every day devoured
+by mankind, and other living creatures, and as it were
+buried in their bodies. And yet by the transmutation
+of the food into blood, or into fire and air, there is
+space enough. And now which way can a man in-
+vestigate the truth ? Why, in order to this, he must
+divide the thing in question into the causal and
+material elements.
+
+---
+4.22 Do not run riot ; keep your intentions honest,
+and your convictions sure.
+
+---
+4.23 Whatever is agreeable to you, Universe, is so
+to me too. Nothing is early or late for me that is
+seasonable for you. Everything is fruit for me which
+your seasons bring, oh Nature. From you all things
+proceed, subsist in you, and return to you. And if
+the poet said,'' Dear City of Cecrops," may we not
+also say," Dear City of God"
+?
+
+---
+4.24 *' If you would live at your ease," says Demo-
+critus, "manage but a few things." I think it had
+been better if he had said,*' Do nothing but what is
+necessary ; and what becomes the reason of a social
+being, and in the order too it prescribes it." For by
+this rule a man has the double pleasure of making his
+actions good and few into the bargain. For the
+greater part of what we say and do, being unnecessary,
+if this were but once retrenched, we should have both
+more leisure and less disturbance. And therefore
+before a man sets forward he should ask himself this
+question,*' Am I not upon the verge of something
+unnecessary ?" Farther, we should apply this hint to
+what we think, as well as to what we do. For imper-
+tinence of thought draws unnecessary action after it.
+
+---
+4.25 Make an experiment upon yourself, and
+examine your proficiency in a life of virtue. Try how
+you can acquiesce in your fate, and whether your own
+honesty and good nature will content you.
+
+---
+4.26 Have you seen this side? Pray view the
+other too. Never be disturbed, but let your purpose
+be single. Is any man guilty of a fault ? It is to
+himself then. Has any advantage happened to you ?
+It is the bounty of fate. It was all of it preordained
+you by the universal cause, and woven in your destiny
+from the beginning. On the whole, life is but short,
+therefore be just and prudent, and make the most of
+it. And when you divert yourself, be always upon
+3'our guard.
+
+---
+4.27 The world is either the effect of contrivance or
+chance ; if the latter, it is a world for all that, that is
+to say, it is a regular and beautiful structure. Now
+can any man discover symmetry in his own shape, and
+yet take the universe for a heap of disorder ? I say
+the universe, in which the very discord and confusion
+of the elements settles into harmony and order.
+
+---
+48. A black character, an effeminate character, an
+obstinate character, brutish, savage, childish, silly,
+false, scurrilous, mercenary, tyrannical.
+
+---
+4.29 Not to know what is in the world, and not to
+know what is done in the world, comes much to the
+same thing, and a man is one way no less a stranger
+than the other. He is no better than a deserter that
+flies from public law. He. is a blind man that shuts
+the eyes of his understanding; and he is a beggar
+that is not furnished at home, but wants the assistance
+of another. He that frets himself because things
+do not happen just as he would have them, and secedes
+and separates himself from the law of universal
+nature, is but a sort of an ulcer of the world, never
+considering that the same cause which produced the
+displeasing accident made him too. And lastly, he
+that is selfish, and cuts off his own soul from the
+universal soul of all rational beings, is a kind of
+voluntary outlaw.
+
+---
+4.30 This philosopher has never a tunic to his coat,
+the other never a book to read, and a third is half
+naked, and yet they are none of them discouraged.
+One learned man says,''
+I have no bread, yet I abide
+by reason." Another,''
+I have no profit of my learn-
+ing, yet I too abide by reason."
+
+---
+4.31 Be satisfied with your business, and learn to
+love what you were bred to ; and as to the remainder
+of your life, be entirely resigned, and let the gods do
+their pleasure with your body and your soul. And
+when this is done, be neither slave nor tyrant to
+anybody.
+
+---
+4.32 To begin somewhere, consider how the world
+went in Vespasian's time ; consider this, I say, and
+you will find mankind just at the same pass they are
+now: some marrying and some concerned in educa-
+tion, some sick and some dying, some fighting and
+some feasting, some drudging at the plough and some
+upon the exchange; some too affable and some
+overgrown with conceit ; one full of jealousy and
+the other of knavery. Here you might find a group
+wishing for the leath of their friends, and there a
+seditious club complaining of the times. Some were
+lovers and some misers, some grasped at the consul-
+ship and some at the sceptre. Well ! all is over
+with that generation long since. Come forward then
+to the reign of Trajan. Now here you will find
+the same thing, but they are all gone too. Go on
+with the contemplation, and carry it to other times
+and countries, and here you will see abundance of
+people very busy with their projects, who are quickly
+resolved into their elements. More particularly re-
+collect those within your own memory, who have been
+hurried on in these vain pursuits; how they have
+overlooked the dignity of their nature, and neglected
+to hold fast to that, and be satisfied with it. And
+here you must remember to proportion your concern
+to the weight and importance of each action. Thus,
+if you refrain from trifling, you may part with amuse-
+ments without regret.
+
+---
+4.33 Those words which were formerly current are
+now become obsolete. Alas ! this is not all ; fame
+tarnishes in time too, and men grow out of fashion
+as well as language. Those celebrated names of
+Camillus, Cseso, Yolesus, and Leonnatus are antiquated.
+Those of Scipio, Cato, and Augustas will soon have the
+same fortune, and those of Hadrian and Antoninus must
+follow. All these things are transitory, and quickly
+become as a tale that is told, and are swallowed uj)
+in oblivion. I speak this of those who have been the
+wonder of their age and who shone with unusual lustre.
+But as for the r^st, they are no sooner dead than for-
+gotten. Aud after all, what does fame everlasting
+mean ? Mere vanity. What then is it that is worth
+one's while to be concerned for ? Why nothing but
+this : to bear an honest mind, to act for the good of
+society, to deceive nobody, to welcome everything
+that happens as necessary and familiar, and flowing
+from a like source.
+
+---
+4.34 Put yourself frankly into the hands of fate,
+and let her spin you out what fortune she pleases.
+
+---
+4.35 He that does a memorable action, and those
+that report it, are all but short-lived things.
+
+---
+4.36 Accustom yourself to consider that whatever
+is produced, is produced by alteration ; that nature
+loves nothing so much as changing existing things,
+and producing new ones like them. For that which
+exists at present is, as it were, the seed of what shall
+spring from it. But if you take seed in the common
+notion, and confine it to the field or the womb, you
+have a dull fancy.
+
+---
+4.37 You are just taking leave of the world, and
+yet you have not done with unnecessary desires. Are
+you not yet above disturbance and suspicion, and fully
+convinced that nothing without can hurt you ? You
+have not yet learned to be friends with everybody,
+and that to be an honest man is the only way to be a
+wise one.
+
+---
+4.38 To understand th« true quality of people, you
+must look into their minds, and examine their pursuits
+and aversions.
+
+---
+4.39 Your pain cannot originate in another man's
+mind, nor in any change or transformation of your
+corporeal covering. Where then does it lie ? Why,
+ID that part of you that forms j adgments about things
+evil. Do not imagine you are hurt, and you are
+impregnable. Suppose then your flesh was hacked,
+burnt, putrified, or mortified, yet let that part that
+judges keep quiet; that is, do not conclude that what
+is common to good or ill men can be good or evil in
+itself. For that which may be everybody's lot, must
+in its own nature be indifferent.
+
+---
+4.40 You ought frequently to consider that the
+world is an animal, consisting of one soul and body,
+that an universal sense runs through the whole mass
+of matter. You should likewise reflect how nature
+acts by a joint effort, and how everything contributes
+to the being of everything: and lastly, what con-
+nection and subordination there is between causes and
+effects.
+
+---
+4.41 Epictetus will tell you that you are a living
+soul, that drags a corpse about with her.
+
+---
+4.42 Things that subsist upon change, and owe their
+being to instability, can neither be considerably good
+nor bad.
+
+---
+4.43 Time is like a rapid river, and a rushing tor-
+rent of all that comes and passes. A thing is no
+sooner well come, but it is past; and then another is
+borne after it, and this too will be carried away.
+
+---
+4.44 Whatever happens is as common and well
+known as a rose in the spring, or an apple in autumn.
+Of this kind are diseases and death, calumny and
+trickery, and every other thing which raises and de-
+presses the spirits of unthinking people.
+
+---
+4.45 Antecedents and consequents are dexterously
+tied together in the world. Things are not carelessly
+thrown on a heap, and joined more by number than
+nature, but, as it were, rationally connected with each
+other. And as the things that exist are harmoniously
+connected, so those that become exhibit no mere suc-
+cession, but an harmonious relationship.
+
+---
+4.46 Do not forget the saying of Heraclitus, "That
+the earth dies into water, water into air, air into fire,
+and so backward." Eemeraber likewise the story of
+the man that travelled on without knowing to what
+place the way would bring him ; and that many
+people quarrel with that reason that governs the world,
+and with which they are daily conversant, and seem
+perfectly unacquainted with those things which occur
+daily. Farther, we must not nod over business—for
+even in sleep we seem to act,—neither are we to be
+wholly governed by tradition ; for that is like
+children, who believe anything their parents tell them.
+
+---
+4.47 Put the case, some god should acquaint you
+you were to die to-morrow, or next day at farthest.
+Under this warning, you would be a very poor wretch
+if you should strongly solicit for the longest time.
+For, alas! how inconsiderable is the difference ? In
+like manner, if you would reason right, you would
+not be much concerned whether your life was to end
+to-morrow or a thousand years hence.
+
+---
+4.48 Consider how many physicians are dead that
+used to knit their brows over their patients; how
+many astrologers who thought themselves great men
+by foretelling the death of others ; how many philo-
+sophers have gone the way of all flesh, after all their
+learned disputes about dying and immortality; how
+many warriors, who had knocked so many men's
+brains out
+; how many tyrants, who managed the
+power of life and death with as much insolence, as
+if themselves had been immortal ; how many cities,
+i I may say so, have given up the ghost: for in-
+stance, Helice in Greece, Pompeii and Herculaneum
+mItaly ; not to mention many besides. Do but recol-
+lect your acquaintance, and here you will find one
+man closing another's eyes, then he himself is laid out,
+and this one by another. And all within a small
+compass of time. In short, mankind are poor trans-
+itory things! They are one day in the rudiments
+of life, and almost the next turned to mummy or
+ashes. Your way is therefore to manage this minute
+in harmony with nature, and part with it cheerfully ;
+and like a ripe olive when you drop, be sure to speak
+well of the mother that bare you, and make your
+acknowledgments to the tree that produced you.
+
+---
+4.49 Stand firm like a rock, against which though
+the waves batter, yet it stands unmoved, and they fall
+to rest at last. How unfortunate has this accident
+made me, cries such an one! Not at all ! He should
+rather say. What a happy mortal am I for being un-
+concerned upon this occasion ! for being neither
+crushed by the present, nor afraid of what is to come.
+The thing might have happened to any other man as
+well as myself; but for all that, everybody Avould
+not have been so easy under it. Why then is not
+the good fortune of the bearing more considerable
+than the ill fortune of the happening? Or, to speak
+properly, how can that be a misfortune to a mail
+which does not frustrate his nature ? And how can
+that cross upon a man's nature which is not opposed
+to the intention and design of it ? Now what that
+intention is, you know. To apply this reasoning:
+does the present accident hinder your being just,
+magnanimous, temperate and modest, judicious, truth-
+ful, reverent, and unservile ? Now, when a man is
+furnished with these good qualities, his nature has
+what she would have. Farther, when anything grows
+troublesome, recollect this maxim: This accident is
+not a misfortune, but bearing it well turns it to an
+advantage.
+
+---
+4.50 To consider those old people that resigned life
+so unwillingly, is a common yet not unserviceable
+aid in facing death. For Avhat are these long-
+lived mortals more than those that went off in their
+infancy ? What has become of Cadicianus, Fabius,
+Julianus. and Lepidus, and others like them ? They
+buried a great many, but came at last to it themselves.
+Upon the whole, the difference between long and short
+life is insignificant, especially if you consider the acci-
+dents, the company, and the bodyyou must go through
+with. Therefore do not let a thought of this kind
+affect you. Do but look upon the astonishing notion
+of time and eternity ; what an immense deal has run
+out already, and how infinite it is still in the future.
+Do but consider this, and you will find three days
+and three ages of life come much to the same
+thing.
+
+---
+4.51 Always go the shortest way to work. Now,
+tlie nearest road to your business is the road of nature.
+Let it be your constant method, then, to be sound in
+word and in deed, and by this means you need not
+grow fatigued, you need not quarrel, flourish, and dis-
+semble like other people.
 
 
 
