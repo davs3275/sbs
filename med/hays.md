@@ -1,7 +1,7 @@
 Title: Meditations  
 Author: Hays  
-Year: 1916  
-Language: English  
+Year: 2002  
+Language: En  
 
 Book 1:
 
