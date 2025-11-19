@@ -2572,7 +2572,6 @@ Book 7:
 
 7.51 "... with food and drink and magic spells seeking some novel way to frustrate death."
 
----
 
 7.51a "To labor cheerfully and so endure the wind that blows from heaven."
 
@@ -2763,7 +2762,6 @@ Book 8:
 
 8.22 Stick to what is in front of you—idea, action, utterance.
 
----
 
 8.22a This is what you deserve. You could be good today. But instead you choose tomorrow.
 
@@ -3106,15 +3104,10 @@ You do not have to turn this into something. It does not have to upset you. Thin
 Practice really hearing what people say. Do your best to get inside their minds.
 What injures the hive injures the bee. If the crew talked back to the captain, or patients to their doctor, then whose authority would they accept? How could the passengers be kept safe or the patient healthy? All those people who came into the world with me and have already left it.
 
----
 
 9.57 Honey tastes bitter to a man with jaundice. People with rabies are terrified of water. And a child's idea of beauty is a ball. Why does that upset you? Do you think falsehood is less powerful than bile or a rabid dog?
 
----
-
 9.58 No one can keep you from living as your nature requires. Nothing can happen to you that is not required by Nature.
-
----
 
 9.59 The people they want to ingratiate themselves with, and the results, and the things they do in the process. How quickly it will all be erased by time. How much has been erased already.
 
