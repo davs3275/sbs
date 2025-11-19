@@ -952,7 +952,6 @@ Fate. How small a role you play in it.
 
 So you have a brain as well. Good for you. Then use your logic to awaken his. Show him. Make him realize it. If he’ll listen, then you’ll have solved the problem. Without anger.
 
----
 5.28a Neither player-king nor prostitute.
 
 ---
@@ -1020,7 +1019,6 @@ Have you forgotten what’s what?
 
 And so you have to be an idiot as well?
 
----
 5.37 I was once a fortunate man but at some point fortune abandoned me.
 
 But true good fortune is what you make for yourself. Good fortune: good character, good intentions, and good actions.
