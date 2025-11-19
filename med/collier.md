@@ -3093,62 +3093,18 @@ Book 9:
 ---
 
 9.42 When you run up against someone else's shamelessness, ask yourself this: Is a world without shamelessness possible? No. Then do not ask the impossible. There have to be shameless people in the world. This is one of them.
-
----
-
-9.43 Does the sun try to do the rain's work? Or Asclepius Demeter's? And what about each of the stars—different, yet working in common?
-
----
-
-9.44 If the gods have made decisions about me and the things that happen to me, then they were good decisions. (It is hard to picture a god who makes bad ones.) And why would they expend their energies on causing me harm? What good would it do them—or the world, which is their primary concern?
-
----
-
-9.45 Whatever happens to you is for the good of the world. That would be enough right there. But if you look closely you will generally notice something else as well: whatever happens to a single person is for the good of others. (Good in the ordinary sense—as the world defines it.)
-
----
-
-9.46 Just as the arena and the other spectacles weary you—you have seen them all before—and the repetition grates on your nerves, so too with life. The same things, the same causes, on all sides. How much longer?
-
----
-
-9.47 Keep this constantly in mind: that all sorts of people have died—all professions, all nationalities. Follow the thought all the way down to Philistion, Phoebus, and Origanion. Now extend it to other species. We have to go there too, where all of them have already gone.
-
----
-
-9.48 When you need encouragement, think of the qualities the people around you have: this one's energy, that one's modesty, another's generosity, and so on. Nothing is as encouraging as when virtues are visibly embodied in the people around us, when we are practically showered with them. It is good to keep this in mind.
-
----
-
-9.49 It does not bother you that you weigh only x or y pounds and not three hundred. Why should it bother you that you have only x or y years to live and not more? You accept the limits placed on your body. Accept those placed on your time.
-
----
-
-9.50 Do your best to convince them. But act on your own, if justice requires it. If met with force, then fall back on acceptance and peaceability. Use the setback to practice other virtues.
-
----
-
-9.51 Ambition means tying your well-being to what other people say or do. Self-indulgence means tying it to the things that happen to you. Sanity means tying it to your own actions.
-
----
-
-9.52 You do not have to turn this into something. It does not have to upset you. Things cannot shape our decisions by themselves.
-
----
-
-9.53 Practice really hearing what people say. Do your best to get inside their minds.
-
----
-
-9.54 What injures the hive injures the bee.
-
----
-
-9.55 If the crew talked back to the captain, or patients to their doctor, then whose authority would they accept? How could the passengers be kept safe or the patient healthy?
-
----
-
-9.56 All those people who came into the world with me and have already left it.
+Does the sun try to do the rain's work? Or Asclepius Demeter's? And what about each of the stars—different, yet working in common?
+If the gods have made decisions about me and the things that happen to me, then they were good decisions. (It is hard to picture a god who makes bad ones.) And why would they expend their energies on causing me harm? What good would it do them—or the world, which is their primary concern?
+Whatever happens to you is for the good of the world. That would be enough right there. But if you look closely you will generally notice something else as well: whatever happens to a single person is for the good of others. (Good in the ordinary sense—as the world defines it.)
+Just as the arena and the other spectacles weary you—you have seen them all before—and the repetition grates on your nerves, so too with life. The same things, the same causes, on all sides. How much longer?
+Keep this constantly in mind: that all sorts of people have died—all professions, all nationalities. Follow the thought all the way down to Philistion, Phoebus, and Origanion. Now extend it to other species. We have to go there too, where all of them have already gone.
+When you need encouragement, think of the qualities the people around you have: this one's energy, that one's modesty, another's generosity, and so on. Nothing is as encouraging as when virtues are visibly embodied in the people around us, when we are practically showered with them. It is good to keep this in mind.
+It does not bother you that you weigh only x or y pounds and not three hundred. Why should it bother you that you have only x or y years to live and not more? You accept the limits placed on your body. Accept those placed on your time.
+ Do your best to convince them. But act on your own, if justice requires it. If met with force, then fall back on acceptance and peaceability. Use the setback to practice other virtues.
+Ambition means tying your well-being to what other people say or do. Self-indulgence means tying it to the things that happen to you. Sanity means tying it to your own actions.
+You do not have to turn this into something. It does not have to upset you. Things cannot shape our decisions by themselves.
+Practice really hearing what people say. Do your best to get inside their minds.
+What injures the hive injures the bee. If the crew talked back to the captain, or patients to their doctor, then whose authority would they accept? How could the passengers be kept safe or the patient healthy? All those people who came into the world with me and have already left it.
 
 ---
 
