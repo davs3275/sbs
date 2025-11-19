@@ -2045,7 +2045,7 @@ against evil.
 
 ---
 5.32. Why should skill and knowledge be disturbed at
-the censures of ignorance ? But who are these knowing
+the censures of ignorance? But who are these knowing
 and skilful people ? Why, those who are acquainted
 with the original cause and end of all things, with
 that reason that pervades the mass of matter, renews
