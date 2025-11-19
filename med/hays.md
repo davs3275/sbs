@@ -1664,7 +1664,6 @@ Either that or the cluster of atoms pulls apart and one way or another the insen
 
 Seeking some novel way to frustrate death.”
 
----
 
 7.51a “To labor cheerfully and so endure
 
