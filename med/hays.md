@@ -1253,7 +1253,6 @@ The present: a split second in eternity.
 
 Minuscule, transitory, insignificant.
 
----
 
 6.36a Everything derives from it—that universal mind—either as effect or consequence. The lion’s jaws, the poisonous substances, and every harmful thing—from thorns to mud … are by-products of the good and beautiful. So don’t look at them as alien to what you revere, but focus on the source that all things spring from.
 
