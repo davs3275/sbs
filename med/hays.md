@@ -2842,7 +2842,6 @@ There are things that nature demands. And this is one of them.
 
 Starting with your own.
 
----
 
 10.38 Remember that what pulls the strings is within—hidden from us. Is speech, is life, is the person. Don’t conceive of the rest as part of it—the skin that contains it, and the accompanying organs. Which are tools—like a carpenter’s axe, except that they’re attached to us from birth, and are no more use without what moves and holds them still than the weaver’s shuttle, the writer’s pencil, the driver’s whip.
 
